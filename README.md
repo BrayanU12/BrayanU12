@@ -14,4 +14,5 @@ Finance Operations professional in Bogotá building automation tools for AR and 
 
 **Background:** B.S. Finance & International Trade · 18 months immersion in Adelaide, Australia · CME Institute certifications
 
-📫 urrutiab67@gmail.com · https://www.linkedin.com/in/camiurrulo125/
+📫 urrutiab67@gmail.com · https://www.linkedin.com/in/brayanurrutia/
+
